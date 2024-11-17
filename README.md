@@ -7,7 +7,20 @@ I am a fast learner and very excited to get a part time job beside my school to 
 - 📫 How to reach me: +1 905 601 3455
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact: My most used quote is, There is no limit to the amount of facts you can learn in life!
-
+- 💪 My skills: Presentation Design, Mathematical Skills, Sketching & Design, Problem solving
+- 👩 This is me!
+- ![download](https://github.com/user-attachments/assets/b72adc45-0641-4157-ab64-ab01fbfa0733
+- 🏆 Certificates and awards!
+June 2018
+National Gymnastics competition - Third place
+June 2020
+Honor Roll - Duncrest American International School
+- 📚Education:
+Sacred Heart Catholic Highschool 2023- Present
+Dunecrest American School - Dubai - UAE  2019-2023
+American International School - Cairo - Egypt 2015-2019
+- 🗣️ Languages I can speak: english and arabic
+  
 <!---
 julianagy6879/julianagy6879 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
