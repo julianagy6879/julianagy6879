@@ -4,7 +4,7 @@ I am a fast learner and very excited to get a part time job beside my school to 
 - 👀 I’m interested in, Science (biology) and math
 - 🌱 I’m currently learning how to enhance my time management skills
 - 💞️ I’m looking to collaborate on school science projects, particularly in biology or physics
-- 📫 How to reach me: +1 905 601 3455
+- 📫 How to reach me: +1 908 607 3459
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact: My most used quote is, There is no limit to the amount of facts you can learn in life!
 - 💪 My skills: Presentation Design, Mathematical Skills, Sketching & Design, Problem solving
