@@ -7,7 +7,8 @@ I am a fast learner and very excited to get a part time job beside my school to 
 - 📫 How to reach me: +1 908 607 3459 (fake)
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact: My most used quote is, There is no limit to the amount of facts you can learn in life!
-- 💪 My skills: Presentation Design, Mathematical Skills, Sketching & Design, Problem solving
+- 💪 My skills: Presentation Design, Mathematical Skills, Sketching & Design, Problem solving,
+- 💻 I can do HTML coding as well as python coding
 - 👩 This is me!
 - ![download](https://github.com/user-attachments/assets/b72adc45-0641-4157-ab64-ab01fbfa0733
 - 🏆 Certificates and awards!
