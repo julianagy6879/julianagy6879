@@ -21,6 +21,7 @@ Sacred Heart Catholic Highschool 2023- Present
 Dunecrest American School - Dubai - UAE  2019-2023
 American International School - Cairo - Egypt 2015-2019
 - 🗣️ Languages I can speak: english and arabic
+- https://img.shields.io/badge/McDonald's-FBC817?style=for-the-badge&logo=McDonald's&logoColor=white 
   
 <!---
 julianagy6879/julianagy6879 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
